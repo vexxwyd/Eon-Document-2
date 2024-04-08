@@ -10,7 +10,7 @@ IMAGE #2 - He doxxed this random guy that antonio "rios old partner" sent to rio
 https://cdn.discordapp.com/attachments/1189749977417797754/1199846175466074193/Screenshot_20231010_131647.png?ex=66204fd4&is=660ddad4&hm=1b5a667b7319a6ee8e4b38317ccc6f491223b35251356298c506c70c3a9ffc67&
 
 VIDEO #1 - This is a short clip of rio aka woozy at the time of this clip, he is seen on a hacked account buying boost which is technically considered fraud because its someone elses cc
-https://cdn.discordapp.com/attachments/1189749977417797754/1199846312275873792/nitro.mov?ex=66204ff4&is=660ddaf4&hm=35036e4912e0287c77640a4c82d7b07b357f4fe39335eeb364fb57dbbda59551&
+# CLICK ON THE ISSUE TAB TO VIEW THE CLIP!
 
 FINNAL IMAGE - This is a ScreenShot of rio and his friend "aimlabs" sitting in exit private vc meanwhile Rio and aimlabs are on BlankGrabber GitHub repo.
 BlankGrabber is a tokenlogger which grabs all of your PC, GAMES, DISCORD, AND WEBSITE COOKIE LOGINS.

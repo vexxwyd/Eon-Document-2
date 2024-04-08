@@ -1,7 +1,7 @@
-# Eon-Document-2-
-This is another short document on the eon owner (RIO)
+# -Eon-Document-2-
+-This is another short document on the eon owner (RIO)-
 
-IMAGES-
+-PROOF-
 
 IMAGE #1 - He made fun of my friend "Zongster" for having cancer, and made his role "Cancer Paitient" 
 # CLICK ON THE ISSUE TAB TO VIEW THE IMAGE!
@@ -14,5 +14,4 @@ VIDEO #1 - This is a short clip of rio aka woozy at the time of this clip, he is
 
 FINNAL IMAGE - This is a ScreenShot of rio and his friend "aimlabs" sitting in exit private vc meanwhile Rio and aimlabs are on BlankGrabber GitHub repo.
 BlankGrabber is a tokenlogger which grabs all of your PC, GAMES, DISCORD, AND WEBSITE COOKIE LOGINS.
-
 # CLICK ON THE ISSUE TAB TO VIEW THE IMAGE!
